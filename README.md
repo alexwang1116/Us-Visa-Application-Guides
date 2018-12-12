@@ -19,6 +19,6 @@ https://utfaq.com/undefined/us_visapart3/
 https://www.douban.com/group/topic/38977465/?author=1
 
 
-### DS-160填写规范
+### DS-160申请表填写范例
 
 [DS-160_Example](https://github.com/alexwang1116/Us-Visa-Application-Guides/blob/master/DS-160_Example.pdf)
