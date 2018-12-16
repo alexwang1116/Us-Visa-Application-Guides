@@ -18,10 +18,18 @@ https://utfaq.com/undefined/us_visapart3/
 【刚刚秒签】留学生在多伦多申请美国B2签证
 https://www.douban.com/group/topic/38977465/?author=1
 
+**【最新版】史上最详细的美国签证攻略，一步一步带你拿到美签（附美国签证照片要求），美西八天自驾游记已完结**
+https://bbs.qyer.com/thread-2523177-1.html?authorid=7904229
+
 
 ### DS-160申请表填写范例
 
 [DS-160_Example](https://github.com/alexwang1116/Us-Visa-Application-Guides/blob/master/DS-160_Example.pdf)
+
+### 旅行计划
+
+美国签证用旅行计划模板 
+https://wenku.baidu.com/view/a99a07fca0116c175f0e48b4.html
 
 
 ### 签证和美国护照的照片要求
