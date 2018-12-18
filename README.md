@@ -26,6 +26,12 @@ https://bbs.qyer.com/thread-2523177-1.html?authorid=7904229
 
 [DS-160_Example](https://github.com/alexwang1116/Us-Visa-Application-Guides/blob/master/DS-160_Example.pdf)
 
+
+### 美签加拿大面试缴费预约
+
+Canada Official U.S. Department of State Visa Appointment Service网站 
+https://ais.usvisa-info.com/en-ca/niv
+
 ### 旅行计划
 
 美国签证用旅行计划模板 
