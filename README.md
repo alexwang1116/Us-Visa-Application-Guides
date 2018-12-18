@@ -48,3 +48,24 @@ https://china.usembassy-china.org.cn/zh/u-s-citizen-services-zh/passports-zh/pho
 照片的尺寸为2×2英寸（边长大约为50毫米的正方形）, 头像居于正中。头部（从头顶至下巴）在1英寸至1又3/8英寸之间（即25毫米至35毫米），眼睛到照片底部的距离为1又1/8英寸至1又3/8英寸（即28毫米至35毫米）。须为白色背景的彩色或黑白照片。照片应无边框。照片应被订在或粘贴在 DS-82 (PDF-303KB)或DS-11(PDF-380KB)（美国护照申请）表格上，或相应的DS-156（非移民签证申请）(PDF-159KB)表格上。如照片是被装订的，钉子必须尽量远离申请人脸部。如照片背景杂乱，有花纹或图案, 或呈深色, 将不予接受。
 
 头巾或帽子只有出于宗教信仰原因必须佩戴时才予以接受，即便如此，也不能遮掩申请者面部的任何部分。太阳镜或其他装饰品遮挡了面部（见上文对面部的规定），将不予接受，除非是由于医疗原因要求佩戴（如，眼罩）。如照片中的人佩戴传统的面罩或面纱致使面目难以辨认，此类照片概不接受。军人、航空公司或其他人员戴帽子的照片不予接受。申请人穿戴不具有明确宗教性质的部落、国家传统服装或佩戴其他头饰的照片不予接受。
+
+
+### 旅行攻略
+
+坐火車去紐約體驗不一樣旅程 
+http://www.mingpaocanada.com/tor/htm/News/20160716/wfa1_r.htm
+
+### 美东出行交通方法汇总
+[www.meilvtong.com/viewthread.php?tid=250](www.meilvtong.com/viewthread.php?tid=250)
+
+灰狗巴士
+https://www.greyhound.com/
+
+Mega Bus
+https://us.megabus.com/
+
+Boltbus
+https://www.boltbus.com/
+
+火车：Amtrak 
+https://www.amtrak.com/home.html
