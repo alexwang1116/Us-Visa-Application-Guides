@@ -1,4 +1,4 @@
-## Us Visa Application Guides （last update Dec 18,2018）
+## Us Visa Application Guides （last update 1/4/2019 10:29:29 PM）
 
 ### 美签申请实用信息
 
@@ -75,3 +75,37 @@ https://www.boltbus.com/
 
 火车：Amtrak 
 https://www.amtrak.com/home.html
+
+### 美签check应对攻略
+
+
+签证状态查询网站：
+https://ceac.state.gov/CEACStatTracker/Status.aspx
+
+Check状态追踪网站：
+https://www.checkee.info/
+
+Visa Denial
+https://ca.usembassy.gov/visas/family-immigration/after-you-receive-your-visa/
+
+回顾今年2月多伦多美签经过：被要求补递简历
+http://forum.iask.ca/threads/回顾今年2月多伦多美签经过%EF%BC%9A被要求补递简历.817893/
+
+美签之行政审查(221G/check)
+https://www.jianshu.com/p/18805c25f4cf
+
+多伦多签美国J1被check收到小黄条，求解答
+http://muchong.com/t-8083778-1
+
+
+【干货】申请美签及B1/B2签证被check经历
+https://bbs.qyer.com/thread-2830339-1.html
+
+美签亲身经历：行政审理也可获得10年B签
+https://bbs.qyer.com/thread-1345443-1.html
+
+
+
+
+
+
