@@ -1,4 +1,4 @@
-## Us Visa Application Guides （last update 1/4/2019 10:29:29 PM）
+## Us Visa Application Guides （last update 2/25/2019 7:05:09 PM）
 
 ### 美签申请实用信息
 
@@ -104,6 +104,11 @@ https://bbs.qyer.com/thread-2830339-1.html
 美签亲身经历：行政审理也可获得10年B签
 https://bbs.qyer.com/thread-1345443-1.html
 
+美国签证状态查询、催签邮件和简历的写法
+https://www.msmk.me/us-visa-status-and-check/
+
+Check58天,终于clear...终极催签攻略送上 
+https://www.1point3acres.com/bbs/thread-67524-1-1.html
 
 
 
