@@ -111,6 +111,24 @@ Check58天,终于clear...终极催签攻略送上
 https://www.1point3acres.com/bbs/thread-67524-1-1.html
 
 
+### EVUS 美签登记
+Official EVUS Enrollment Website, U.S. Customs and Border Protection
+https://www.evus.gov/evus/#/
+
+EVUS （签证更新电子系统）
+自2016年11月29日起，所有持中华人民共和国护照，同时持有最长有效期（十年）B1/B2、B1和B2签证的个人若没有进行有效的EVUS登记将无法进入美国。对于搭乘多段航班前往美国的旅行者，EVUS登记信息将在他们进行第一个航班登记时进行验证。所有持中华人民共和国护照同时持有十年签证的个人在通过陆路以及港口进入美国时同样必须进行有效的EVUS登记。
+登记网站：https://www.evus.gov/evus/#/
+EVUS宣传手册：[The EVUS Enrollment Brochure (PDF 498 KB)](https://photos.state.gov/libraries/china/1224546/pdf/Evus-brochure%2017_5x8_5_10272016-Chinese1.pdf)
+常见问题请访问：[www.cbp.gov/evus](https://www.cbp.gov/travel/international-visitors/electronic-visa-update-system-evus/frequently-asked-questions)
+
+手把手教你5分钟搞定EVUS美签登记-原创 
+https://bbs.qyer.com/thread-2661739-1.html
+
+
+
+
+
+
 
 
 
