@@ -124,6 +124,13 @@ EVUS宣传手册：[The EVUS Enrollment Brochure (PDF 498 KB)](https://photos.st
 手把手教你5分钟搞定EVUS美签登记-原创 
 https://bbs.qyer.com/thread-2661739-1.html
 
+2018.08，手把手教你登记EVUS    
+https://bbs.qyer.com/thread-3036370-1.html
+
+十年美签必备：EVUS登记系统手把手教学帖！    
+https://bbs.qyer.com/thread-2624767-1.html
+
+
 
 
 
